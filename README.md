@@ -11,3 +11,8 @@ Please respect that, and I apologize if I come off as an asshole; I tend to be f
 
 I also find myself getting easily aggrivated, so I tend to avoid people who I recognize even slightly
 UNLESS I see them as a safe person to be around in this state.
+
+
+_❝So you quote love unquote me
+Well❟ stranger things have come to be
+But let❜s agree to disagree❞_
