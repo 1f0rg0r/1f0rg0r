@@ -15,5 +15,5 @@ UNLESS I see them as a safe person to be around in this state.
 
 _❝So you quote love unquote me
 Well, stranger things have come to be
-But let❜s agree to disagree
+But let's agree to disagree
 'Cause I don't believe you❞_
