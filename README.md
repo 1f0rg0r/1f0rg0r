@@ -12,6 +12,7 @@ I did this to feel more comfortable in my body whenever I didn't exactly feel li
 I also find myself getting easily aggrivated, so I tend to avoid people who I recognize even slightly<sub>as i can only remember names mostly</sub>
 UNLESS I see them as a safe person to be around in this state.
 
+BTWBTWBTW if i interact w u i probably think ur cool but it might take a little to consider u a friend so keep that in mind ^^,
 
 > _❝Why is it so hard to speak
 To people I don't know?
