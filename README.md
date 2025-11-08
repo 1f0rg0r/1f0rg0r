@@ -14,11 +14,7 @@ UNLESS I see them as a safe person to be around in this state.
 
 BTWBTWBTW if i interact w u i probably think ur cool but it might take a little to consider u a friend so keep that in mind ^^,
 
-> _❝Why is it so hard to speak
-To people I don't know?
-Is it something that you learn
-When constantly alone?
-When did I become a man
-Trapped inside a ghost?❞_
+> _❝I feel its gross hot breath breathing in my face
+After all this time❞_
 
 
