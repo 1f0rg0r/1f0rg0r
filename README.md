@@ -14,4 +14,11 @@ UNLESS I see them as a safe person to be around in this state.
 
 BTWBTWBTW if i interact w u i probably think ur cool but it might take a little to consider u a friend so keep that in mind ^^,
 
-
+> _The fox approached the tree
+where the bird was perched delighted in his nest
+**"Brother Crow, don't you remember me?
+It's your old friend Fox with a humble request;
+If you could share just a modest piece,
+seeing as I distracted that awful man"**
+This failed to persuade the crow in the least
+so the fox rethought his plan_
