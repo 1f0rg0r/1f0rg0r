@@ -16,4 +16,4 @@ BTWBTWBTW if i interact w u i probably think ur cool but it might take a little 
 
 > _And if I pass out, wake me up
 I may be drunk, but I'm not drunk enough
-And everything keeps fucking up_
+and everything keeps fucking up_
