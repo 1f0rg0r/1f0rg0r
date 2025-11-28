@@ -14,6 +14,7 @@ UNLESS I see them as a safe person to be around in this state.
 
 BTWBTWBTW if i interact w u i probably think ur cool but it might take a little to consider u a friend so keep that in mind ^^,
 
-> _And if I pass out, wake me up
-I may be drunk, but I'm not drunk enough
-and everything keeps fucking up_
+> _Don't wake me up from this spell I'm under
+if I'm still breathing!
+I know that I will be ugly when
+I feel like myself again_
