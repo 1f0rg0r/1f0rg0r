@@ -15,7 +15,4 @@ __<sub>Do I Need To Mimick Myself To Stop You From Questioning?</sub>__
 
 BTWBTWBTW if i interact w u i probably think ur cool but it might take a little to consider u a friend so keep that in mind ^^,
 
-> _And they say it started with a big bang
-but they say it came out of a small thing.
-Lately, I'm feeling like a big bang
-'cause I've been making something out of nothing_
+> _Try to look at heaven and I can't see the stars_
