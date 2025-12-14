@@ -15,4 +15,7 @@ __<sub>Do I Need To Mimick Myself To Stop You From Questioning?</sub>__
 
 BTWBTWBTW if i interact w u i probably think ur cool but it might take a little to consider u a friend so keep that in mind ^^,
 
-> _Try to look at heaven and I can't see the stars_
+> _But all I really know is I'm not sorry
+'Cause I am on my own with no one there
+To make me feel alone when they are with me
+It sounds insane, but au contraire_
