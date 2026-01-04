@@ -15,6 +15,4 @@ __<sub>Do I Need To Mimick Myself To Stop You From Questioning?</sub>__
 
 BTWBTWBTW if i interact w u i probably think ur cool but it might take a little to consider u a friend so keep that in mind ^^,
 
-> _The books you throw aside
-I take them in advance,
-to make my mind not feel alone_
+
