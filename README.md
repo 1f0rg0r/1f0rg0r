@@ -15,8 +15,8 @@ __<sub>Do I Need To Mimick Myself To Stop You From Questioning?</sub>__
 
 BTWBTWBTW if i interact w u i probably think ur cool but it might take a little to consider u a friend so keep that in mind ^^,
 
-> _I'm dreaming in the heart of the storm
-And when the power grid goes out our love will keep each other warm
-We've been here before in some distant memory
-I don't want to wake up from this dream!_ <sub>Color Bars (casio dad/glass beach)<sub>
+> _I'm pulling at the root to tear you off me
+To see if I'll have something left
+And even if it means I'm starting over
+And everything I made with you means nothing_
 
