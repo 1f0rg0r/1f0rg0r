@@ -15,8 +15,4 @@ __<sub>Do I Need To Mimick Myself To Stop You From Questioning?</sub>__
 
 BTWBTWBTW if i interact w u i probably think ur cool but it might take a little to consider u a friend so keep that in mind ^^,
 
-> _I'm pulling at the root to tear you off me
-To see if I'll have something left
-And even if it means I'm starting over
-And everything I made with you means nothing_
 
